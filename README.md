@@ -8,8 +8,8 @@
   </tr>
    <tr>
     <td align=center>
- <b>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>网门   安卓版  APP下载<br/> ●长期访问<br/> ●一键翻墙<br/>  ●不限时长<br/> 
- <a href="http://t.cn/RCMs6gj">👉<b>点我下载</a><br/>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>
+ <b>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/><b>网门　網門<br/>　安卓版 APP　已更新<br/>  ●一键翻墙<br/>  ●不限时长</b><br/>
+ <a href="https://t.cn/Rp7oHNN">👉<b>点我下载</a><br/>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>
     </td>
     </tr>
    <tr>
