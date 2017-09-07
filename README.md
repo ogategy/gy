@@ -22,7 +22,7 @@
  </tr>
  <tr>
 <td align=left>
-<a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?c831302&from=gityw">◆军队武警十九大代表名单的四大看点</a><br/>
+<a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?c831283&from=gityw">◆中共团中央第一书记秦宜智落选19大代表</a><br/>
 </td>
   </tr>
    <tr>
