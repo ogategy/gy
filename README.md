@@ -1,11 +1,4 @@
 <table>
-  <tr>
-  <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E4.jpg" />
-  </td>
-  </tr>
-   <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/gy1-wxsm.png" /></td>
-  </tr>
    <tr>
     <td align=center>
  <b>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>网门  安卓版 APP下载(更新版）<br/> ●长期访问<br/> ●一键翻墙<br/>  ●不限时长<br/> 
