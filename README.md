@@ -21,38 +21,38 @@
   </tr>
  <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c831867&from=gityw">◆郭文贵纽约再被告 前私人助理指遭多次强奸</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c831966&from=gityw">◆日媒直击毛新宇内部聚会 披露其落选19大真实原因</a><br/>
 </td>
  </tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c831854&from=gityw">◆石涛：习近平与中共传统元老家族决裂 生存之道？</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c831997&from=gityw">◆北京高官试探美方：为何不除掉金正恩？ 我们没问题</a><br/>
 </td>
   </tr>
    <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c831516&from=gityw">◆【中共百种酷刑之一】：“小白龙”</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c831983&from=gityw">◆陈敏尔三大优势无人能比 或成十九大最大黑马</a><br/>
 </td>
    </tr>
    
  <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c831890&from=gityw">◆中共十九大倒计时 蔡奇下“军令状”的背后</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c831955&from=gityw">◆疑中共掩盖朝核污染 长白山南景区紧急关闭</a><br/>
 </td>
    </tr>
  <tr>
    <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c831851&from=gityw">◆崔士方：“末代监军”贾廷安</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c831970&from=gityw">◆石涛：班农访港称习〝英明领袖〞川普对习〝高度尊重〞</a><br/>
 </td>
    </tr>
     <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c831837&from=gityw">◆党校观清代反腐剧 专家：早该抛弃中共体制</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c831936&from=gityw">◆刘云山要〝向习近平看齐〞之解读</a><br/>
 </td>
    </tr>
    <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c831828&from=gityw">◆中共拘留微信群主 出台〝九不发〞 民众哗然</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c831934&from=gityw">◆《709纪事》之四：从酷刑说起（3）</a><br/>
 </td>
    </tr>
     <tr>
@@ -62,22 +62,22 @@
    </tr>
  <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c831841&from=gityw">◆谁的恐惧谁的痛 议谭松教授被开除</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816857_101_1&from=gityw">◆文昭：停播“锵锵三人行”与删袁腾飞微博，原因之原因是“极端势力”</a><br/>
 </td>
    </tr> 
    <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c831822&from=gityw">◆江泽民二代三代对军方的插手</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833_2_1086&from=gityw">◆【百年红祸】特别专题 第三集</a><br/>
  </td>
  </tr>
    <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c831763&from=gityw">◆九天剑：邪教发出末日信号（上）</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c832002&from=gityw">◆李天笑：习近平19大前大动作频频意味什么？</a><br/>
 </td>
   </tr> 
   <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c831856&from=gityw">◆盘点毛泽东林彪身边研究者的神秘死亡</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833_2_1085&from=gityw">◆中国人为什么恨美国不恨苏俄？原来如此</a><br/>
 </td>
    </tr> 
     <tr>
