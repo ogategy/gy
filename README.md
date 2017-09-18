@@ -135,7 +135,7 @@
   <tr>
   <td align=center>
   <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816846_2_1&from=gitSTV">视频短片：为了您的未来，请您加入三退大潮</a><br/>
-      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?ogST.aspx&from=gitST"><b>〓那年我们没有选择，今天却是我们的自由〓<br/></a>
+      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?ogST.aspx&from=gitST"><b>〓〓〓君子不立危墙之下〓〓〓<br/></a>
       </td>
   </tr>
  
