@@ -20,55 +20,54 @@
   </tr>
    <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835184&from=gityw">◆江泽民被〝架〞进19大会场 习近平扭脸斜视</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835286&from=gityw">◆胡锦涛对习近平做了个手势 习笑着〝露了一手〞</a><br/></td>
   </tr>
 <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835169&from=gityw">◆突出〝一切姓党〞？19大首场记者会规格比照总理级</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835296&from=gityw">◆十九大官方画面显示 江泽民两度在重要时刻被遮挡</a><br/></td>
  </tr>
    </tr>
  <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835126&from=gityw">◆巧合？19大恰逢赵紫阳冥寿 赵胡两家通讯全断</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835306&from=gityw">◆老领导们〝爬着也要去〞19大 一名常委却离奇消失</a><br/>
 </td>
    </tr> 
     <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835161&from=gityw">◆江泽民入19大主席团 红二代抨〝反人类罪绕不开〞</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835300&from=gityw">◆王岐山十九大前的去留迷雾（完整版）</a><br/></td>
   </tr>
  <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835135&from=gityw">◆当众羞辱？媒体称江泽民或被迫公开表态支持习核心</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835293&from=gityw">◆袁斌：中共亡党的鲜明征兆</a><br/></td>
    </tr>
   <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835172&from=gityw">◆官场空前糜烂 反腐救不了中共（上）</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835271&from=gityw">◆【佞臣录】中央第一大秘误国害己</a><br/></td>
    </tr>
   <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835167&from=gityw">◆陈敏尔去向两极 最新放风称将取代刘云山</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835289&from=gityw">◆出人意料 习近平19大报告获鼓掌最高潮是这句话</a><br/>
 </td>
     <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835139&from=gityw">◆王友群：呼吁川普总统、联合国、习近平主席问责章启月</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835291&from=gityw">◆19大出状况 102岁代表开幕半小时被带离</a><br/></td>
  </tr>
  <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835171&from=gityw">◆十九大新闻中心酒会 泄中宣部人事安排？</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835256&from=gityw">◆江派四大员为何被赶下十九大主席台？</a><br/>
 </td>
    </tr>
     <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835140&from=gityw">◆外界为何关注中共十九大发言人庹震？</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835261&from=gityw">◆习宣扬打虎 江泽民坐立难安 看表10次</a><br/></td>
   </tr> 
  <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835137&from=gityw">◆十九大报告执笔人曝光 习的两文胆或被重用</a><br/>
-</td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835237&from=gityw">◆习近平先与胡锦涛握手疑似故意 江9次看表如坐针毡</a><br/></td>
    </tr> 
  <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835127&from=gityw">◆纪检系统密集换将 王岐山布局人马到位</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835240&from=gityw">◆十九大将讨论延长习近平任期问题</a><br/>
 </td>
    </tr>
     <tr>
