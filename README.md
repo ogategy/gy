@@ -20,54 +20,54 @@
   </tr>
    <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835923&from=gityw">◆常委出炉难掩权争激烈 习近平仍有跨不过的门槛</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c836079&from=gitlv">◆胡春华〝失常〞一身轻？ 传19大期间〝玩自拍〞</a><br/></td>
   </tr>
 <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835957&from=gityw">◆栗战书料掌港澳 传不满梁振英闯习近平专机</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c836071&from=gitlv">◆7常委亮相罕见一幕 李克强快速超韩正跟进习近平</a><br/></td>
  </tr>
    </tr>
  <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835940&from=gityw">◆表情复杂 王岐山在任最后一天离开会场画面曝光</a><br/>
+<a href="http://wer.tv.inoma.lv/?c836074&from=gitlv">◆高层多部门大换血 传习近平钦点李强接任上海</a><br/>
 </td>
    </tr> 
   <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835958&from=gityw">◆习引古诗：不要人夸颜色好 只留清气满乾坤引猜测</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c836027&from=gitlv">◆红二代：王沪宁上位遇阻 习近平强拉入常</a><br/></td>
   </tr>
  <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835938&from=gityw">◆名单异常 19大中委〝选举〞露馅洩激斗实情</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c836069&from=gitlv">◆习江激战十九大 专家揭王岐山〝裸退〞内幕</a><br/></td>
    </tr>
   <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835956&from=gityw">◆李源潮出局 民间希望他早点落马</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c836068&from=gitlv">◆陆作家：习绝不是毛 否则〝他父亲在冥下也会骂他〞</a><br/></td>
    </tr>
   <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835949&from=gityw">◆应勇马兴瑞意外〝出局〞 李希李强或分掌上海广东</a><br/>
+<a href="http://wer.tv.inoma.lv/?c836043&from=gitlv">◆【禁闻】中共十九大尘埃落定 鲍彤谈观感</a><br/>
 </td>
     <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835950&from=gityw">◆【禁闻】江泽民露面十九大 是荣是辱？</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c836031&from=gitlv">◆港媒曝胡春华未入常原因</a><br/></td>
  </tr>
  <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835939&from=gityw">◆长年迫害人权 曾庆红亲信郭声琨 传掌政法委</a><br/>
+<a href="http://wer.tv.inoma.lv/?c836032&from=gitlv">◆日媒：反习势力反扑激烈 王岐山被迫让位</a><br/>
 </td>
    </tr>
     <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835916&from=gityw">◆19大闭幕式央视再〝砍江〞 男服务员倒水用意明显</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c836026&from=gitlv">◆习家将位列19大主席团 却蹊跷未入中委</a><br/></td>
   </tr> 
  <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835936&from=gityw">◆杨宁：十九大后需要直面的一大问题</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c816857_137_1&from=gitlv">◆文昭：大会开完，封网会缓解？新风暴在酝酿？</a><br/></td>
    </tr> 
  <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816833_2_1217&from=gityw">◆【禁闻】中共96年 中华添一亿亡魂</a><br/>
+<a href="http://wer.tv.inoma.lv/?c816833_2_1226&from=gitlv">◆林彪坠机中共高层一片欢呼 只有彭德怀悲鸣〝不活了〞</a><br/>
 </td>
    </tr>
     <tr>
@@ -75,37 +75,37 @@
   </tr>
  <tr>
    <td align=left> 
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816850&from=gityw">◆今日点击◆全球华语最热脱口秀</a><br/>
+<a href="http://wer.tv.inoma.lv/?c816850&from=gitlv">◆今日点击◆全球华语最热脱口秀</a><br/>
     </td>
   </tr>
   <tr>
    <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816857&from=gityw">◆文昭解读◆解析全球最热门时事</a><br/>
+<a href="http://wer.tv.inoma.lv/?c816857&from=gityw">◆文昭解读◆解析全球最热门时事</a><br/>
     </td>
   </tr>
   <tr>
   <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816860&from=gityw">◆中国禁闻◆报道中国最深度内幕</a><br/>
+<a href="http://wer.tv.inoma.lv/?c816860&from=gitlv">◆中国禁闻◆报道中国最深度内幕</a><br/>
    </tr>
   <tr>
      <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816855&from=gityw">◆环球直击◆透析最新的全球资讯</a><br/>
+<a href="http://wer.tv.inoma.lv/?c816855&from=gitlv">◆环球直击◆透析最新的全球资讯</a><br/>
    </tr>
    <tr>
       <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816851&from=gityw">◆世事关心◆关注全球新闻之焦点</a><br/>
+<a href="http://wer.tv.inoma.lv/?c816851&from=gitlv">◆世事关心◆关注全球新闻之焦点</a><br/>
    </tr>
    <tr>
      <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816852&from=gityw">◆热点互动◆把握时事热点的脉动</a><br/>
+<a href="http://wer.tv.inoma.lv/?c816852&from=gitlv">◆热点互动◆把握时事热点的脉动</a><br/>
    </tr>
    <tr>
       <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816694&from=gityw">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
+<a href="http://wer.tv.inoma.lv/?c816694&from=gitlv">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
    </tr>
    <tr>
     <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816650&from=gityw">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
+<a href="http://wer.tv.inoma.lv/?c816650&from=gitlv">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
    </tr>
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/tongdao2.jpg" /></td>
@@ -125,9 +125,10 @@
     </td>
   </tr>
   <tr>
-  <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/3t.jpg" /><br/>
-  <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816846_2_1&from=gitSTV">视频短片：为了您的未来，请您加入三退大潮</a><br/>
-      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?ogST.aspx&from=gitST"><b>〓君子不立危墙之下〓<br/></a>
+  <td align=center>
+  <a href="http://wweer.tv.inoma.lv/?c816846_2_1&from=gitlvSTV">视频短片：为了您的未来，请您加入三退大潮</a><br/>
+      <a href="http://w35er.tv.inoma.lv/?ogST.aspx&from=gitlvST"><b>〓君子不立危墙之下〓<br/></a>
+      <img src="https://github.com/gyhhx/image-upload/blob/master/3t.jpg" /><br/>
       </td>
   </tr>
  <tr>
