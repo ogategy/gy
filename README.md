@@ -15,9 +15,7 @@
  <a href="http://t.cn/RTkHemx">👉<b>点我下载</a><br/>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>
     </td>
     </tr>
-  <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/yaowen.jpg" /></td>
-  </tr>
+ 
       <td align=center> 
       <a href="http://uoj234hg.gv.chorus.si/show.htm?ogNews&from=gy">👉👉▲▲▲墙外头条  实时更新▲▲▲</a>
   </tr>
