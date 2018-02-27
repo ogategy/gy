@@ -15,8 +15,8 @@
  <a href="http://t.cn/RTkHemx">👉<b>点我下载</a><br/>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>
     </td>
     </tr>
- 
-      <td align=center> 
+ <tr>
+     <td align=center> 
       <a href="http://uoj234hg.gv.chorus.si/show.htm?ogNews&from=gy">👉👉▲▲▲墙外头条  实时更新▲▲▲</a>
   </tr>
     <tr>
