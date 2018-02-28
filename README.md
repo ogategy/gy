@@ -63,7 +63,7 @@
     <td align=center>请尝试不同入口，进入动态网址<br/>
       <a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/show.htm?from=gy">入口</a>
       <a target="_blank" href="https://s3.ap-northeast-2.amazonaws.com/ogates/show.htm?from=gy">入口</a>
-      <a target="_blank" href="https://s3.amazonaws.com/ogate/show.htm?from=gy">入口</a><br/>
+      <a target="_blank" href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=gy">入口</a><br/>
       <a target="_blank" href="https://s3-us-west-1.amazonaws.com/ogaten/show.htm?from=gy">入口</a>
       <a target="_blank" href="https://s3.us-east-2.amazonaws.com/ogateh/show.htm?from=gy">入口</a>
       <a target="_blank" href="https://s3.eu-central-1.amazonaws.com/ogatef/show.htm?from=gy">入口</a><br/>     
